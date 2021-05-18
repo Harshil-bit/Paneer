@@ -1,0 +1,1 @@
+Need Paneer, Oil,Onion,Red Chillies, Tomato,Salt,Cashews, Ghee, Kashmiri Chilli Powder, Garam Masala, Kasuri Methi, Coriander leaves, Khoya, Milk, Fresh Cream, Sugar and water.
